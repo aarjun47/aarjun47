@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Arjun B
-- 👀 Data Enthusiast 
+- 👀 Product Manager
 - ✅ BTech(IT) from CUSAT
 
 <!---
