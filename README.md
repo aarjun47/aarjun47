@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Arjun B
-- 👀 Product Manager
+- ✨ Product Manager
 - ✅ BTech(IT) from CUSAT
 
 <!---
